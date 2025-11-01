@@ -1,5 +1,5 @@
 ## 👋 Olá, eu sou o Davi Bisewski!
-**`💻 Desenvolvedor FullStack em formação`**
+**`💻 Desenvolvedor em formação`**
 
 ## 😏 Sobre mim
 
