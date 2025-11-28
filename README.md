@@ -3,7 +3,7 @@
 
 ## 😏 Sobre mim
 
-Me chamo Davi De Morais Bisewski, Tenho 17 anos e sou natural de Joinville (SC).
+Me chamo Davi De Morais Bisewski, Tenho 18 anos e sou natural de Joinville (SC).
 
 - 🎓 Estudante de Informática para Internet | Instituto Federal Catarinense Campus Araquari
 
